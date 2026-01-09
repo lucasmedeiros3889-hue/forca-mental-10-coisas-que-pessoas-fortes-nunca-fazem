@@ -1,0 +1,1 @@
+# forca-mental-10-coisas-que-pessoas-fortes-nunca-fazem
